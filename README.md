@@ -1,1 +1,0 @@
-# Yarım kaldı
