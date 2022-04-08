@@ -1,1 +1,1 @@
-# Yarım kalan çalışmalar
+# Yarım kaldı
